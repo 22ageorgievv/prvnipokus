@@ -8,3 +8,4 @@ Nas repozitar je prazdny a obsahuje:
 - vakum
   ## Druhý podnadpis
 -Velmi zajiamvy obsah  
+-Prestan mi na to sahat ty negre
